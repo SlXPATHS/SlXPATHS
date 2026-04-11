@@ -10,4 +10,4 @@
 
   ⠀⠀ ⠀ 
 
-  ⠀⠀[ata](https://dreadform.atabook.org)  ⠀⠀ ⠀ .  ⠀⠀ ⠀ [rentry](https://rentry.co/weepinghound)
+[ata](https://dreadform.atabook.org)  ⠀⠀ ⠀ .  ⠀⠀ ⠀ [rentry](https://rentry.co/weepinghound)
