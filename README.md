@@ -10,4 +10,4 @@ https://github.com/user-attachments/assets/72f06b25-24a4-4e96-a831-6cecc3c18d24
 
 </details>
 
-![](https://i.ibb.co/ZRTkmxHG/painvskonan.gif)
+![](https://i.ibb.co/y7Kn6db/painvskonan2.gif)
